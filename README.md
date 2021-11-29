@@ -1,0 +1,2 @@
+# rachith
+THE HEALTH BENEFITS OF POSITIVE THINKING  Researchers continue to explore the effects of positive thinking and optimism on health. Health benefits that positive thinking may provide include:  Increased life span  Lower rates of depression  Lower levels of distress  Greater resistance to the common cold  Better psychological and physical well-being  Reduced risk of death from cardiovascular disease  Better coping skills during hardships and times of stress
